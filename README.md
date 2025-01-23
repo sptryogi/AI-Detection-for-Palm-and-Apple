@@ -1,0 +1,1 @@
+# AI-Detection-for-Palm-and-Apple
